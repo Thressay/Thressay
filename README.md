@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+I'm currently working in astrophysics :telescope:, studying supernovae specifically. :star2: :boom: I love it.
+My profile picture is my cat Willow. She keeps me company while I work on my projects. :smile_cat:
